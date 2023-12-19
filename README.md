@@ -15,6 +15,15 @@ We have Hitler's dog in the building right now. Hitler's dog is making a special
 
 Hitler never had a dog. That was just a believable lie. The Hitler Dogocaust never happened. No single dog on Earth ever loved that man.
 
+listen over here at dog boys secret we go back i to the history and we kill hitlers dogo and we grind its bones to dust and then we deny that it ever happened because there no evidence.
+
+hitlers dog never happened!
+
+hitler never had a dog!
+
+hitler never had a german dog!
+
+hitler never had a stable of german dogs!
 
 
 

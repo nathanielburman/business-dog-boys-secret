@@ -41,6 +41,8 @@ hitler never had a german dog!
 
 hitler never had a stable of german dogs!
 
+<img src="11A8F685-1914-4461-93F6-A6E8D9A02F77.jpeg" width="100%"></img>
+
 
 
 

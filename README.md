@@ -1,6 +1,8 @@
 # business-dog-boys-secret
 Come on down to Dog Boy’s Secret where we got all the dogs and all the secrets. The boys are all dogs here and we got plenty of them. We got bad dogs and good dog galore and believe me when I say you’re going want to see these dogs. Get a moving on and come by and see these dogs. Dog boys are best pet with other dogs. Independent dogs vary by sizes
 
+a link to my goods and wares https://opensea.io/assets/matic/0x4eb8882037f75576f892198ae1c753792ab07e90/9
+
 <img src="AFD44AAB-1BE5-4032-81C9-09A96B70471B.jpeg" width="100%"></img>
 
 our competitors over at Dog Boy's R Us are getting sued by my lawers. i own the trademark on Dog Boy's now. i will sue anyone who contends with me in this space. "Dog Boy's" is owned fully by Honor Citizen.

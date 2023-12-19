@@ -19,15 +19,17 @@ Come on down to Dog Boys Secret, now, we got secrets we got dogs and we got boys
 
 These dog boys are priced to sell now. Christmas gift shopping done? Secret santa just came to town. Dog Santa is my special guest. And prices are too low to mention!
 
-You are going to need to see these hot deal! Buy while aupplies last there is a current shortage in all parts of the world!
+You need to see these hot deals!!! Buy while supplies last! *here is a current shortage in all parts of the world!
 
 <img src="19905CAD-3092-4511-B0C1-B320A199179A.jpeg" width="100%"></img>
 
 We have Hitler's dog in the building right now. Hitler's dog is making a special appearance in select locations today only.
 
+<img src="488A94D9-E819-47A2-93EB-5D22E0EC57AF.jpeg"></img>
+
 Hitler never had a dog. That was just a believable lie. The Hitler Dogocaust never happened. No single dog on Earth ever loved that man.
 
-listen over here at dog boys secret we go back i to the history and we kill hitlers dogo and we grind its bones to dust and then we deny that it ever happened because there no evidence.
+Listen! Over here at dog boys secret we go back i to the history and we kill hitlers dogo and we grind its bones to dust and then we deny that it ever happened because there no evidence.
 
 hitlers dog never happened!
 

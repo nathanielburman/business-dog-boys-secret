@@ -13,6 +13,8 @@ As the proud owner of Dog Boy's Secret we proud ourselves in our enourmous selec
 
 Come on down to Dog Boys Secret, now, we got secrets we got dogs and we got boys. These boys are full of secrets and they act like dogs. Hell you can even call them a dog and they will beg for approval.
 
+<img src="BB5822DE-06EC-4117-B4CA-C6A79A02E86E.jpeg" width="100%"></img>
+
 These dog boys are priced to sell now. Christmas gift shopping done? Secret santa just came to town. Dog Santa is my special guest. And prices are too low to mention!
 
 You are going to need to see these hot deal! Buy while aupplies last there is a current shortage in all parts of the world!

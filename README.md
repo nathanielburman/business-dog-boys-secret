@@ -21,6 +21,8 @@ These dog boys are priced to sell now. Christmas gift shopping done? Secret sant
 
 You are going to need to see these hot deal! Buy while aupplies last there is a current shortage in all parts of the world!
 
+<img src="19905CAD-3092-4511-B0C1-B320A199179A.jpeg" width="100%"></img>
+
 We have Hitler's dog in the building right now. Hitler's dog is making a special appearance in select locations today only.
 
 Hitler never had a dog. That was just a believable lie. The Hitler Dogocaust never happened. No single dog on Earth ever loved that man.

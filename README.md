@@ -11,6 +11,8 @@ our competitors over at Dog Boy's R Us are getting sued by my lawers. i own the 
 
 As the proud owner of Dog Boy's Secret we proud ourselves in our enourmous selection of dog boys to your delight! These dog boys dont bite! Unless you want us to take off the muzzles! Ha ha lol.
 
+<img src="F974EEE6-8D4C-4DC3-8F90-D3F2D6FF161C.jpeg" width="100%"></img>
+
 Come on down to Dog Boys Secret, now, we got secrets we got dogs and we got boys. These boys are full of secrets and they act like dogs. Hell you can even call them a dog and they will beg for approval.
 
 <img src="BB5822DE-06EC-4117-B4CA-C6A79A02E86E.jpeg" width="100%"></img>

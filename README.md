@@ -7,6 +7,8 @@ a link to my goods and wares https://opensea.io/assets/matic/0x4eb8882037f75576f
 
 our competitors over at Dog Boy's R Us are getting sued by my lawers. i own the trademark on Dog Boy's now. i will sue anyone who contends with me in this space. "Dog Boy's" is owned fully by Honor Citizen.
 
+<img src="2544B9EC-E0B8-4DA3-981C-22FC35FDA659.jpeg" width="100%"></img>
+
 As the proud owner of Dog Boy's Secret we proud ourselves in our enourmous selection of dog boys to your delight! These dog boys dont bite! Unless you want us to take off the muzzles! Ha ha lol.
 
 Come on down to Dog Boys Secret, now, we got secrets we got dogs and we got boys. These boys are full of secrets and they act like dogs. Hell you can even call them a dog and they will beg for approval.

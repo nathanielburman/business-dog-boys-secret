@@ -10,3 +10,21 @@ Come on down to Dog Boys Secret, now, we got secrets we got dogs and we got boys
 These dog boys are priced to sell now. Christmas gift shopping done? Secret santa just came to town. Dog Santa is my special guest. And prices are too low to mention!
 
 You are going to need to see these hot deal! Buy while aupplies last there is a current shortage in all parts of the world!
+
+We have Hitler's dog in the building right now. Hitler's dog is making a special appearance in select locations today only.
+
+Hitler never had a dog. That was just a believable lie. The Hitler Dogocaust never happened. No single dog on Earth ever loved that man.
+
+
+
+
+
+
+
+
+
+
+
+
+
+

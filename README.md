@@ -45,7 +45,9 @@ hitler never had a stable of german dogs!
 
 Our "Eathan for Aids 2.0" drive is on!!!
 
-
+BUY OUR DOGS HERE!!!
+https://opensea.io/collection/real-dogs-bones
+<img src="https://github.com/nathanielburman/business-dog-boys-secret/blob/main/31rdb1final.png" width="100%"></img>
 
 
 
